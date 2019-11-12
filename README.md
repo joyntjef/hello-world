@@ -6,3 +6,5 @@ Sup nerds,
 I'm a human male. 5'14. Approximately 10kg in weight. I like pizza rolls and golf. Very terrible sense of humor which includes but is not limited to: Ok boomer jokes; Dog videos; cat videos; any animal doing cute things videos; r/DIWHY;
 
 l8r sk8rs
+
+People ask me if I even skate. Do *you* even skate?
